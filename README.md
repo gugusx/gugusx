@@ -19,7 +19,7 @@ I am a data professional with expertise in:
 ---
 
 ## 🔹 Get in Touch  
-📌 LinkedIn: [https://linkedin.com/in/gugus](#)  
+📌 LinkedIn: https://linkedin.com/in/gugus  
 
 ---
 
